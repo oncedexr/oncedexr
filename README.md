@@ -4,7 +4,7 @@ Hi 👋 My name is Nadea S.
 Computer Engineering Student @RSU
 ---------------------------------
 
-\--------------------------------------------------------------------------------
+꧁༒################################################༒꧂
 
 * 🌍  I'm based in Bangkok
 * ✉️  You can contact me at [nadea.s68@rsu.ac.th](mailto:nadea.s68@rsu.ac.th)
